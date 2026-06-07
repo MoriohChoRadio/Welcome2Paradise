@@ -1,6 +1,6 @@
 <h6 align="center">
 
-<kbd>ME AND <a href="https://github.com/COMPOUND-V24">ARCHIVE</a> = TOILETDUO
+<kbd>ME AND <a href="https://github.com/PURPLEDUCKTAPE">ARCHIVE</a> = TOILETDUO
 
 ᴵ ᵂᴬᴺᵀ ʸᵒᵘ ᵗᵒ ˡᵃˢᵗ ᵃ ˡᵒⁿᵍ ᵗᶦᵐᵉ .
 
