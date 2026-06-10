@@ -23,7 +23,7 @@ i have 500 different alts, try and collect them all
 
 ᵃˢ ˡᵒⁿᵍ ᵃˢ ʸᵒᵘ'ʳᵉ ᵃˡᶦᵛᵉ . . . ʰᵉ'ˡˡ ˡᵉᵃᵛᵉ ᵐᵉ .
 
-<img src="https://files.catbox.moe/dbvolh.png" width="200" /> <a href="https://github.com/westalis">Koid Forgshikage</a>
+
 
 <a href="https://github.com/MoriohChoRadio">FOLLOW MY OLD ACCOUT NOW</a>
 
